@@ -1,1 +1,1 @@
-# COVID
+# COVID situation in Japan
